@@ -1,40 +1,39 @@
 ## Seconde semaine
 
+#### Remarques
+1. Pendant la seconde semaine et les suivantes, il sera très utile de lire de temps en temps quelques passages de l’ _Imitation de Jésus-Christ_, des Évangiles et de la vie des Saints.
+2. On peut, dans cette seconde semaine, selon le temps que l’on veut y employer et le profit spirituel que l’on en retire, multiplier ou diminuer le nombre des contemplations. Dans le premier cas, on ajoutera les mystères de la visitation[^22] de Notre-Dame à sainte Élisabeth, de l’adoration des bergers, de la circoncision[^23] de l’Enfant Jésus, de l’adoration des Mages, et ainsi des autres ; dans le second, on en retranchera plusieurs, même de ceux qui sont ici indiqués, puisqu’en les réunissant on ne s’est proposé que de présenter une introduction à la méditation des mystères du Sauveur, afin que l’on puisse les contempler ensuite d’une manière plus complète.
+3. La matière de l’élection commencera à se traiter à la contemplation du départ de Notre-Seigneur de Nazareth pour le Jourdain, c’est-à-dire le cinquième jour inclusivement : ce qui doit se faire selon la méthode indiquée plus bas.
+4. Avant d’entrer dans la matière de l’élection, il sera très utile, pour s’affectionner à la véritable doctrine de Notre-Seigneur Jésus-Christ, de considérer attentivement les trois modes ou degrés d’humilité suivants, de s’en occuper souvent pendant le jour, en faisant les trois colloques, comme il est recommandé plus bas.
+
 ### Jour 0 ? 
+
+On fera cet exercice deux fois dans la journée : le matin, en se levant, et une heure avant le dîner ou le souper.
 
 #### De[^15] l’appel d’un roi temporel pour aider à contempler la vie du Roi éternel.
 
-**91** L’oraison préparatoire est la même qu’à l’ordinaire. Le premier prélude est la composition de lieu. Il consistera ici à voir, des yeux de l’imagination, les synagogues, les bourgs et les villages que parcourait Notre-Seigneur Jésus-Christ en annonçant son Évangile. Le second prélude consiste à demander la grâce que je veux obtenir. Ce sera ici de demander à Notre-Seigneur la grâce de n’être pas sourd à son appel, mais prompt et diligent à accomplir sa très sainte volonté.
+##### L’oraison préparatoire
+Demander à Dieu, notre Seigneur, que toutes mes intentions, toutes mes actions et toutes mes opérations soient dirigées uniquement au service et à la louange de sa divine Majesté.
+
+##### Prélude
+Composition de lieu : voir, des yeux de l’imagination, les synagogues, les bourgs et les villages que parcourait Notre-Seigneur Jésus-Christ en annonçant son Évangile.
+
+##### Demande de grâce
+Demander à Notre-Seigneur la grâce de n’être pas sourd à son appel, mais prompt et diligent à accomplir sa très sainte volonté.
 
 ##### Première partie
-
-**92** _Premier point._ Je me représenterai un roi que la main de Dieu a choisi, et à qui tous les princes et tous les peuples chrétiens rendent respect et obéissance.
-
-**93** _Second point._ Je m’imaginerai entendre ce même roi parlant à tous ses sujets, et leur disant : Ma volonté est de conquérir tout le pays des infidèles. Que celui qui voudra me suivre se contente de la même nourriture, de la même boisson, des mêmes vêtements que moi. Qu’il travaille durant le jour, qu’il veille pendant la nuit, comme moi, afin de partager un jour avec moi, selon la mesure de ses travaux, les fruits de la victoire[^16].
-
-**94** _Troisième point._ Je considérerai ce que devraient répondre de fidèles sujets à un roi si généreux et si bon, et combien celui qui n’accepterait pas de telles offres serait digne du mépris de tout le monde, et mériterait de passer pour le plus lâche des hommes.
+Premier point : Je me représenterai un roi que la main de Dieu a choisi, et à qui tous les princes et tous les peuples chrétiens rendent respect et obéissance.
+Second point : Je m’imaginerai entendre ce même roi parlant à tous ses sujets, et leur disant : Ma volonté est de conquérir tout le pays des infidèles. Que celui qui voudra me suivre se contente de la même nourriture, de la même boisson, des mêmes vêtements que moi. Qu’il travaille durant le jour, qu’il veille pendant la nuit, comme moi, afin de partager un jour avec moi, selon la mesure de ses travaux, les fruits de la victoire[^16].
+Troisième point : Je considérerai ce que devraient répondre de fidèles sujets à un roi si généreux et si bon, et combien celui qui n’accepterait pas de telles offres serait digne du mépris de tout le monde, et mériterait de passer pour le plus lâche des hommes.
 
 ##### Seconde partie
+La seconde partie de cet exercice consiste à appliquer à Jésus-Christ, notre Seigneur, les trois points de la parabole précédente. 
 
-**95** La seconde partie de cet exercice consiste à appliquer à Jésus-Christ, notre Seigneur, les trois points de la parabole précédente. Et quant au premier point, si l’appel d’un roi de la terre à ses sujets fait impression sur nos coeurs, combien plus vivement ne devons-nous pas être touchés de voir Jésus-Christ, notre Seigneur, Roi éternel, et devant lui le monde entier, et chaque homme en particulier, qu’il appelle en disant : Ma volonté est de conquérir le monde entier, de soumettre tous mes ennemis, et d’entrer ainsi dans la gloire de mon Père. Que celui qui veut venir avec moi travaille avec moi ; qu’il me suive dans les fatigues, afin de me suivre aussi dans la gloire.
+Premier point : si l’appel d’un roi de la terre à ses sujets fait impression sur nos coeurs, combien plus vivement ne devons-nous pas être touchés de voir Jésus-Christ, notre Seigneur, Roi éternel, et devant lui le monde entier, et chaque homme en particulier, qu’il appelle en disant : Ma volonté est de conquérir le monde entier, de soumettre tous mes ennemis, et d’entrer ainsi dans la gloire de mon Père. Que celui qui veut venir avec moi travaille avec moi ; qu’il me suive dans les fatigues, afin de me suivre aussi dans la gloire.
+Second point : tout homme qui fait usage de son jugement et de sa raison ne peut pas balancer à s’offrir généreusement à tous les sacrifices et à tous les travaux.
+Troisième point : tous ceux qui voudront s’attacher plus étroitement à Jésus-Christ, et se signaler au service de leur Roi éternel et Seigneur universel, ne se contenteront pas de s’offrir à partager ses travaux ; mais, agissant contre leur propre sensualité, contre l’amour de la chair et du monde, ils lui feront encore des offres d’une plus haute importance et d’un plus grand prix, en disant : 
 
-**96** Je considérerai, dans le second point, que tout homme qui fait usage de son jugement et de sa raison ne peut pas balancer à s’offrir généreusement à tous les sacrifices et à tous les travaux.
-
-**97** Je considérerai, dans le troisième point, que tous ceux qui voudront s’attacher plus étroitement à Jésus-Christ, et se signaler au service de leur Roi éternel et Seigneur universel, ne se contenteront pas de s’offrir à partager ses travaux ; mais, agissant contre leur propre sensualité, contre l’amour de la chair et du monde, ils lui feront encore des offres d’une plus haute importance et d’un plus grand prix, en disant : 
-
-**98** Roi éternel et souverain Seigneur de toutes choses, je viens vous présenter mon offrande : aidé du secours de votre grâce, en présence de votre infinie bonté, sous les yeux de votre glorieuse Mère et de tous les Saints et Saintes de la cour céleste, je proteste que je désire, que je veux, et que c’est de ma part une détermination arrêtée, pourvu que tels soient votre plus grand service et votre plus grande gloire, vous imiter en supportant les injures, les opprobres, la pauvreté d’esprit et de coeur, et même la pauvreté réelle, si votre très sainte Majesté veut me choisir et m’admettre à cet état de vie.
-
-**99** On fera cet exercice deux fois dans la journée : le matin, en se levant, et une heure avant le dîner ou le souper.
-
-**100** Pendant la seconde semaine et les suivantes, il sera très utile de lire de temps en temps quelques passages de l’ _Imitation de Jésus-Christ_, des Évangiles et de la vie des Saints.
-
-#### Remarques
-
-**162** _Première remarque._ On peut, dans cette seconde semaine, selon le temps que l’on veut y employer et le profit spirituel que l’on en retire, multiplier ou diminuer le nombre des contemplations. Dans le premier cas, on ajoutera les mystères de la visitation[^22] de Notre-Dame à sainte Élisabeth, de l’adoration des bergers, de la circoncision[^23] de l’Enfant Jésus, de l’adoration des Mages, et ainsi des autres ; dans le second, on en retranchera plusieurs, même de ceux qui sont ici indiqués, puisqu’en les réunissant on ne s’est proposé que de présenter une introduction à la méditation des mystères du Sauveur, afin que l’on puisse les contempler ensuite d’une manière plus complète.
-
-**163** _Deuxième remarque._ La matière de l’élection commencera à se traiter à la contemplation du départ de Notre-Seigneur de Nazareth pour le Jourdain, c’est-à-dire le cinquième jour inclusivement : ce qui doit se faire selon la méthode indiquée plus bas.
-
-**164** _Troisième remarque._ Avant d’entrer dans la matière de l’élection, il sera très utile, pour s’affectionner à la véritable doctrine de Notre-Seigneur Jésus-Christ, de considérer attentivement les trois modes ou degrés d’humilité suivants, de s’en occuper souvent pendant le jour, en faisant les trois colloques, comme il est recommandé plus bas.
+> Roi éternel et souverain Seigneur de toutes choses, je viens vous présenter mon offrande : aidé du secours de votre grâce, en présence de votre infinie bonté, sous les yeux de votre glorieuse Mère et de tous les Saints et Saintes de la cour céleste, je proteste que je désire, que je veux, et que c’est de ma part une détermination arrêtée, pourvu que tels soient votre plus grand service et votre plus grande gloire, vous imiter en supportant les injures, les opprobres, la pauvreté d’esprit et de coeur, et même la pauvreté réelle, si votre très sainte Majesté veut me choisir et m’admettre à cet état de vie.
 
 #### Des trois degrés d’humilité
 

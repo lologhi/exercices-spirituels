@@ -116,66 +116,34 @@ Ne saviez-vous pas qu’il faut que je m’emploie aux choses qui regardent mon 
 1. Jésus-Christ, notre Seigneur, après avoir dit adieu à sa Mère bénie, va de Nazareth au fleuve du Jourdain, où était saint Jean-Baptiste.
 
 
-2. Jésus-Christ, notre Seigneur, est baptisé par saint Jean, qui se reconnaît indigne de ce ministère ; mais Jésus lui dit : 
-Faites ceci maintenant ; car c’est ainsi qu’il faut que nous accomplissions toute justice.
+2. Jésus-Christ, notre Seigneur, est baptisé par saint Jean, qui se reconnaît indigne de ce ministère ; mais Jésus lui dit : Faites ceci maintenant ; car c’est ainsi qu’il faut que nous accomplissions toute justice.
 
-3. L’Esprit-Saint descend sur lui ; et au même instant on entend une voix du ciel qui disait : 
-Celui-ci est mon Fils bien-aimé, en qui j’ai mis mes complaisances.
+3. L’Esprit-Saint descend sur lui ; et au même instant on entend une voix du ciel qui disait : Celui-ci est mon Fils bien-aimé, en qui j’ai mis mes complaisances.
 
 #### **274** Comment Jésus-Christ fut tenté (*Mt* 4, 1-11 — *Mc* 1, 12-13 — *Lc* 4, 1-13)
-
 1. Après avoir été baptisé, Jésus se retira au désert, où il jeûna quarante jours et quarante nuits.
-
-
-2. Il fut tenté trois fois par l’ennemi : 
-Le tentateur, s’approchant, lui dit : Si vous êtes le Fils de Dieu, commandez que ces pierres se changent en pains. Jetez-vous en bas. Je vous donnerai toutes ces choses, si, vous prosternant, vous m’adorez.
-
+2. Il fut tenté trois fois par l’ennemi : Le tentateur, s’approchant, lui dit : Si vous êtes le Fils de Dieu, commandez que ces pierres se changent en pains. Jetez-vous en bas. Je vous donnerai toutes ces choses, si, vous prosternant, vous m’adorez.
 3. Les Anges s’approchèrent et ils le servaient.
 
 #### **275** De la vocation des Apôtres
-
 1. Il paraît que saint Pierre et saint André furent appelés trois fois : premièrement, à une certaine connaissance du Sauveur, ce que nous apprend saint Jean dans le premier chapitre ; secondement, à suivre Jésus-Christ en quelque manière, avec l’intention de retourner à ce qu’ils avaient abandonné, comme dit saint Luc dans le chapitre cinquième ; troisièmement, à suivre Jésus-Christ, notre Seigneur, pour toujours, comme le rapportent saint Matthieu dans le quatrième chapitre, et saint Marc dans le premier.
-
-
 2. Il appela Philippe, comme il est marqué dans le premier chapitre de saint Jean ; et Matthieu, comme le même Apôtre le dit dans le neuvième chapitre.
-
-
 3. Il appela les autres Apôtres, de la vocation desquels il n’est pas fait mention spéciale dans l’Évangile. On fera, de plus, les trois considérations suivantes : Premièrement, combien les Apôtres étaient ignorants et de basse condition. Secondement, la dignité à laquelle ils furent appelés avec tant de douceur. Troisièmement, les dons et les grâces dont ils furent comblés, et par lesquels ils furent élevés au-dessus de tous les Pères du Nouveau et de l’Ancien Testament.
 
-
 #### **276** Du premier miracle de Notre-Seigneur aux noces de Cana, en Galilée (*Jn* 2, 1-11)
-
 1. Jésus-Christ, notre Seigneur, est invité aux noces de Cana avec ses disciples.
-
-
-2. La Mère de Jésus déclare à son Fils le manque de vin : 
-Ils n’ont pas de vin. Et elle fait aux serviteurs ce commandement : 
-Faites tout ce qu’il vous dira.
-
-3. Jésus change l’eau en vin : 
-Et il manifesta sa gloire, et ses disciples crurent en lui.
+2. La Mère de Jésus déclare à son Fils le manque de vin : Ils n’ont pas de vin. Et elle fait aux serviteurs ce commandement : Faites tout ce qu’il vous dira.
+3. Jésus change l’eau en vin : Et il manifesta sa gloire, et ses disciples crurent en lui.
 
 #### **277** Comment Jésus-Christ chassa du Temple ceux qui y vendaient (*Jn* 2, 13-22)
-
 1. Il chassa du Temple, avec un fouet de corde, tous ceux qui y vendaient.
-
-
 2. Il renversa les tables et l’argent des riches banquiers qui étaient dans le Temple.
-
-
-3. Il dit aux pauvres qui vendaient des colombes : 
-Ôtez cela d’ici ; et ne faites pas de la maison de mon Père une maison de trafic.
+3. Il dit aux pauvres qui vendaient des colombes : Ôtez cela d’ici ; et ne faites pas de la maison de mon Père une maison de trafic.
 
 #### **278** Du discours que fit Jésus-Christ sur la montagne (*Mt* 5-7 \- *Lc* 6, 17-49)
-
-1. Il enseigne à ses bien-aimés disciples, séparés de la foule, les huit Béatitudes : 
-Bienheureux, leur dit-il, sont les pauvres d’esprit ; ceux qui sont doux ; ceux qui sont miséricordieux ; ceux qui pleurent ; ceux qui ont faim et soif de la justice ; ceux qui ont le coeur pur ; ceux qui sont pacifiques, et ceux qui souffrent persécution.
-
-2. Il les exhorte à bien user de leurs talents : 
-Que votre lumière brille devant les hommes, afin qu’ils voient vos bonnes oeuvres, et glorifient votre Père qui est dans le Ciel.
-
-3. Il se montre, non le transgresseur, mais le consommateur de la loi, en expliquant les préceptes contre l’homicide, la fornication, le parjure et sur l’amour des ennemis.
-Et moi je vous le dis, aimez vos ennemis, faites du bien à ceux qui vous haïssent.
+1. Il enseigne à ses bien-aimés disciples, séparés de la foule, les huit Béatitudes : Bienheureux, leur dit-il, sont les pauvres d’esprit ; ceux qui sont doux ; ceux qui sont miséricordieux ; ceux qui pleurent ; ceux qui ont faim et soif de la justice ; ceux qui ont le coeur pur ; ceux qui sont pacifiques, et ceux qui souffrent persécution.
+2. Il les exhorte à bien user de leurs talents : Que votre lumière brille devant les hommes, afin qu’ils voient vos bonnes oeuvres, et glorifient votre Père qui est dans le Ciel.
+3. Il se montre, non le transgresseur, mais le consommateur de la loi, en expliquant les préceptes contre l’homicide, la fornication, le parjure et sur l’amour des ennemis. Et moi je vous le dis, aimez vos ennemis, faites du bien à ceux qui vous haïssent.
 
 #### **279** Comment Jésus-Christ, notre Seigneur, apaisa une tempête sur la mer de Galilée (*Mt* 8, 23-27 — *Mc* 4, 35-40 — *Lc* 7, 22-25)
 
